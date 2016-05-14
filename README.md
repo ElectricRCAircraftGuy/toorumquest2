@@ -7,3 +7,4 @@ http://youtu.be/sLvgW_zb6bQ
 
 Schematic, photos and technical info:
 http://petenpaja.blogspot.fi
+http://petenpaja.blogspot.fi/2013/11/toorums-quest-ii-retro-video-game.html 
